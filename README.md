@@ -1,1 +1,0 @@
-# komputer-desdekli-dizayn
